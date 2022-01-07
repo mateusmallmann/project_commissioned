@@ -1,2 +1,2 @@
 # project_commissioned
-Research project og commissioned position in public sector
+Research project of commissioned position in public sector
